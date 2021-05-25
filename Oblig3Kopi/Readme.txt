@@ -1,0 +1,1 @@
+Oblig 3 var lenkelister. Jeg bruker mye bedre lenkelister i de senere obligene. 
